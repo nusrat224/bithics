@@ -1,2 +1,2 @@
 # new-project
-https://nusrat224.github.io/new/
+https://nusrat224.github.io/new23/
